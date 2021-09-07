@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Amiy2080
-- 👀 I’m interested in SOFTWARE DEPLOPMENT...
+- 👀 I’m interested in SOFTWARE DEVELOPMENT...
 - 🌱 I’m currently learning .PYTHON..
-- 💞️ I’m looking to collaborate on .SOFTWARE DEVLOPMENT..
+- 💞️ I’m looking to collaborate on .SOFTWARE DEVELOPMENT..
 - 📫 How to reach me .amiypic1998@gmail.com..
 
 <!---
